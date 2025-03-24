@@ -9,7 +9,7 @@ This app is designed to help you track your smoking habits and encourage longer 
 
 If you have any questions, feedback, or run into issues, please feel free to contact:
 
-📧 **hint_99@hotmail.com**
+8h6r2rpmy6@privaterelay.appleid.com
 
 We aim to respond as soon as possible.
 
